@@ -1,0 +1,1 @@
+# SalesKit_NovatexIndustria
